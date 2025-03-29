@@ -19,6 +19,7 @@
 - Maradona es mas grnade que Pelé, y Messi el mejor de todos los tiempos. (Esto tambien es real)
 - El Dibu Martinez es todo lo que esta bien.
 - Agunte la Scaloneta!!!
+- Brazil se comio 4 pepas quedo empachado.
 
   ![Foto Argentina Campeón](https://media.puntal.com.ar/p/b8ae6e6b52cec4bdb286863ac7a1c2d7/adjuntos/270/imagenes/001/578/0001578689/argentina-campeomn-1jpg.jpg)
 
